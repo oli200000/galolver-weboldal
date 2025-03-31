@@ -1,0 +1,1 @@
+# galolver-weboldal
